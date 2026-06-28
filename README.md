@@ -6,7 +6,7 @@
 <br>
 2) ./run.sh
 
-<img width="1920" height="1080" alt="Screenshot_20260331_094022" src="[https://github.com/user-attachments/assets](https://i.postimg.cc/NGx1Bbh4/mask.jpg)/fc648f20-ab3b-43f2-99aa-9c051c24d127" />
+<a href='https://postimg.cc/Dm8WcrwJ' target='_blank'><img src='https://i.postimg.cc/NGx1Bbh4/mask.jpg' border='0' alt='mask'></a>
 
 𝙒𝙚𝙨𝙖𝙢 𝙃𝙖𝙘𝙠𝙚𝙧 𝙤𝙛 𝙄𝙨𝙡𝙖𝙢
  - نسخة الوحش (Monster Edition)
