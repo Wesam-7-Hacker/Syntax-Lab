@@ -6,8 +6,7 @@
 <br>
 2) ./run.sh
 
-<a href='https://postimg.cc/7fPSrNjG' target='_blank'><img src='https://i.postimg.cc/65ncRj00/tʿlyq-twdyhy-2026-06-28-223346-024137.png' border='0' alt='tʿlyq-twdyhy-2026-06-28-223346-024137'></a>
-
+<a href='https://postimg.cc/jL63ZvPL' target='_blank'><img src='https://i.postimg.cc/fT14Wrbj/hk-025307.png' border='0' alt='hk-025307'></a>
 𝙒𝙚𝙨𝙖𝙢 𝙃𝙖𝙘𝙠𝙚𝙧 𝙤𝙛 𝙄𝙨𝙡𝙖𝙢
  - نسخة(Monster Edition)
 منصة 𝙒𝙚𝙨𝙖𝙢 𝙃𝙖𝙘𝙠𝙚𝙧 𝙤𝙛 𝙄𝙨𝙡𝙖𝙢
